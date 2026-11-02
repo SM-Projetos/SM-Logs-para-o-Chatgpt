@@ -1,0 +1,1 @@
+# SM-Logs-para-o-Chatgpt
